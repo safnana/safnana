@@ -12,7 +12,6 @@ Let's connect! Feel free to reach out to me. 💌
 
 # 👀 Get in Touch
 <a href="https://id.linkedin.com/in/safna-faradillah"><img align="left" title="linkedin" width="21px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/LinkedIn_logo_initials.png/480px-LinkedIn_logo_initials.png"/></a>
-<a href="https://www.instagram.com/farphoria/"><img align="left" title="instagram" width="21px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Instagram_icon.png/1200px-Instagram_icon.png"/></a>
 
 
 
